@@ -18,5 +18,3 @@
 - How to reach me: turaevv.ilya@gmail.com 📫
 
 Check out my repositories down below 👇
-
-![](https://github.com/Ilya2raev/markdown_test/blob/master/1.jpg)
