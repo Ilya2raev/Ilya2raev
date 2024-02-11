@@ -17,4 +17,4 @@
 
 - How to reach me: turaevv.ilya@gmail.com 📫
 
-Check out my repositories down below 👇
+Check out my works down below 👇
